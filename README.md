@@ -1,0 +1,2 @@
+# Warlocksmp
+Welcome to Warlocksmp
